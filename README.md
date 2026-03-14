@@ -64,5 +64,5 @@ Historical Document Analysis
 
 
 
-SASTRA Deemed University
+
 
